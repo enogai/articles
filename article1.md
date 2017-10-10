@@ -34,3 +34,21 @@ We feel it is extremely important to continually professionally educate ourselve
 Our high service quality and "raving fan" clients are the result of our commitment to excellence.
 
 We will answer all of your questions, as they impact both your tax and financial situations. We welcome you to contact us anytime.
+
+
+### Creating Financial Freedom!
+
+Building and preserving your personal wealth requires specialized attention. You get one-on-one guidance and a comprehensive financial plan that helps manage risk, improve performance, and ensure the growth and longevity of your wealth.
+
+We help you...
+
+Save enough for a comfortable retirement by identifying your retirement needs, analyzing your assets and sources of retirement income, reviewing estimated shortfalls, and identifying the best ways to save for retirement given your financial situation and risk tolerance.
+
+Pay for your child's college education by accurately estimating the amount of money you'll need, analyzing your assets, reviewing estimated shortfalls and considering general alternatives and strategies to help address these potential shortfalls, and developing an optimal savings plan given your financial situation and risk tolerance.
+
+Protect your family in case of you become disabled by ensuring you have enough money in your emergency fund and analyzing your life, disability, health, home, and auto insurance coverage. We also review your will and various powers of attorney designed to take care of your affairs in the event you are incapacitated and can't manage them yourself.
+
+Achieve your investment goals by identifying the steps needed to maximize your investment returns as well as the steps needed to help minimize your risk while building increased predictability of your investment returns.
+
+Leave a legacy for your heirs by maximizing the value of your estate by saving tax dollars, professional fees, and court costs. As well as minimizing the costs of probate, creditors, lawyers, and estate taxes, which can negatively impact the value of your estate. We also help you stay in control of your affairs by providing a road map for passing your estate on to your heirs.
+A financial plan's true value comes with its implementation. Let us help you attain financial freedom by requesting a Free Consultation below.
